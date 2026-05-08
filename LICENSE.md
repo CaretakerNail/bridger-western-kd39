@@ -1,4 +1,4 @@
-
+elite Scripts for bridger western offers the most advanced bridger western Script, with infinite resources and auto-heal. Perfect for dominating any
 
 
 
